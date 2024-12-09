@@ -1,1 +1,1 @@
-# UofGuelph_Arboretum_NaturePreserve_Wetland_Fall24GEOG6610Project
+# UofGuelph Arboretum Nature Preserve Wetland - Fall 2024 GEOG*6610 Project
